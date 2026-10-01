@@ -1,0 +1,1 @@
+# trabalhoAP1-arqcomp-2026.2
